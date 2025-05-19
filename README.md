@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Wurminator69420
-- 😄 Pronouns: Mental/Illness
-- ⚡ Fun fact: Professional MMA Fighter
+- ⚡ Fun fact: Penis
 
 <!---
 Wurminator69420/Wurminator69420 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
